@@ -1,0 +1,2 @@
+# URBAN-PARAMETERS-ANALYSIS-OF-SHAM-SHUI-PO-WITH-GSVI-BY-HUMAYERA-MARZAN
+Sham Shui Po is selected for this assignment as a vibrant, traditional district in Kowloon, Hong Kong, renowned as a working-class hub for electronics, fashion, and textile bargains. It offers an authentic taste of local life with famous street food, Michelin-recommended eateries, and historic sites, blending a rich history with a burgeoning.
